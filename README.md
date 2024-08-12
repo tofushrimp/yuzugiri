@@ -1,2 +1,2 @@
 # yuzugiri
-agus fried chicken
+I LOVE SKIBIDI TOILET
