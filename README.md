@@ -1,3 +1,2 @@
 # yuzugiri
-![](https://cdn.discordapp.com/attachments/1079933420957876356/1324965316635394129/e37e746e20a9dca55ea0309cd2acb2cf.jpg?ex=677a119c&is=6778c01c&hm=6af6bdd8e4965e0bb3703fb3be01e3439c1d52c79e0c02111ab89f30d3063cbf&)
-``oh juliet, my special girl``
+![](https://64.media.tumblr.com/156cd858e0514c1f47f73de451a01305/cdc6669dee67f5ea-a0/s1280x1920/3bf73cdef7aa80a741c9f6b6cef2b8d060c8c680.jpg)
